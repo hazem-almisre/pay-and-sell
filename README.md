@@ -1,3 +1,0 @@
-# pay-and-sell
-
-## Ahmad
